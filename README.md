@@ -1,0 +1,2 @@
+# AI MINI PROJECT
+ 
